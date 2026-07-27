@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>中国男子橄榄球队亚运会闯入八强，项目普及度持续提升</h3><br><p>投资是认知的变现：你永远赚不到超出自己认知范围的钱。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>东方财富互联网券商生态：流量变现的长期成长逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>城市防洪排涝政策，管网建设标的全线拉升。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>广州珠江夜游暑期航班加密，日均接待游客超5万人次。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国长江十年禁渔成效显著，水生生物资源逐步恢复</h3><br><p>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>集成电路税收减免政策延长，芯片全板块集体上涨</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>工业硅价格触底反弹15%，光伏硅料成本端压力下降</h3><br><p>大模型在交通领域应用，城市拥堵率下降20%。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率</h3><br><p>苏州马拉松开跑，3万跑者体验江南赛道赛事口碑持续提升。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>国内潮玩文旅融合项目爆发，主题潮玩展暑期吸引超千万人</h3><br><p>药明康德CXO全球布局：全球医药研发外包的龙头价值。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>知名私募大手笔增持TOPCon电池标的，持仓占比达4%</h3><br><p>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>央行下调SLF利率，货币政策宽松取向进一步明确</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>洛阳龙门石窟暑期推出夜游项目，门票上线即秒空</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>沪股通席位单日买入中国中冶5300万，冶金工程标的增持</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化</h3><br><p>全国县域商业体系建设完成，农村消费市场潜力持续释放。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>复合肥价格上调7%，化肥全产业链盈利优化。<br><br> | 来源：<code>www.www.gmgs.com.cn
