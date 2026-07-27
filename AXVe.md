@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分54秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红</h3><br><p>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>温氏股份放量上涨4.2%，养殖业务盈利持续修复</h3><br><p>荣盛石化新材料业务拓展：炼化企业的第二增长曲线。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>定向降准支持县域金融机构，乡村振兴板块迎来利好。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>全国马术赛事超百场，马术运动从小众走向大众。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国新增10家5A级景区，文旅品质持续升级</h3><br><p>算力需求持续高增：IDC、光模块、服务器的产业链机会。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>政策性降息支持保障性住房建设，保障房产业链受益</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>海尔智家高端产品占比提升，单季业绩预告超预期</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势</h3><br><p>降准资金定向支持三农，农业板块迎来流动性利好。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>国家集采冠脉支架降价后，全国手术量同比增长30%惠及患者。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>三一重工放量上涨，工程机械行业景气度边际改善</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>音乐节市场上半年演出超500场，年轻群体消费占比超80%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>洋河梦之蓝批价上调4%，白酒全产业链盈利优化</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>生成式AI服务管理细则，AI应用板块情绪修复</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>山东高速放量上涨2.7%，路网资产盈利稳健</h3><br><p>机构专用席位净买入长电科技1.9亿，封测龙头获长线资金加仓。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>外资单日加仓三一重工12亿，工程机械龙头获外资回流</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>海螺水泥水泥价格回升，单季业绩预告超预期</h3><br><p>千禾味业放量上涨4.3%，零添加产品份额持续提升。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>正泰电器户用光伏优势：分布式光伏龙头的渠道壁垒</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>绿色建材认证政策，绿色建材板块走强。<br><br> | 来源：<code>www.azi-cbt.com
