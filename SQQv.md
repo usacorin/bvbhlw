@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>龙江交通放量上涨1.8%，东北区域车流量边际改善</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>四川成渝放量上涨2.3%，区域路网业务持续向好。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>机构+北向合力买入山西汾酒1.7亿，清香白酒龙头获资金布局</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%</h3><br><p>英国经济止跌回升，二季度GDP同比增长0.6%。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>坚果产品价格上涨5%，休闲食品龙头盈利改善。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>6G技术研发推进计划，通信设备板块全线异动</h3><br><p>大秦铁路煤炭运输量回升，前三季度业绩预增超20%。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>武汉水上马拉松开跑，千名泳者畅游长江挑战自我。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>全球新材料市场规模突破5万亿美元，支撑高端制造发展</h3><br><p>降准定向支持科技创新，科技成长板块获流动性利好。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>海参价格单月上涨18%，海产养殖龙头盈利提升。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>外资持续买入科大讯飞，AI龙头获外资持仓占比突破3%</h3><br><p>暑期电影票房突破120亿，国产影片包揽票房前十。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>存款利率下调推动居民储蓄搬家，权益市场增量资金入场</h3><br><p>全国新能源汽车保有量突破3000万辆，减排效果显著。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>国内大模型企业估值破万亿，30家企业跻身独角兽行列</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>www.vetb-us.com
